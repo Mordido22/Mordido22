@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Mordido22
+- 👀 I’m interested in learn
+- 🌱 I’m currently learning a lot of things
+- 💞️ I’m looking to collaborate on people
+- 📫 How to reach me: imagination
+- 😄 Pronouns: me
+- ⚡ Fun fact: this fact
